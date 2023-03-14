@@ -15,11 +15,11 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-### 我是挂圈高层米饭团子,我可以爹妈惨死,爹妈惨死都不能满足我的皇帝梦\
-### 在我米饭团子眼里除了我其他人全是底层\
-### 进入我的[皇帝墓穴](https://mftz.nac.wtf/)\
-### 我的QQ1809097884\
-### 我米饭团子可是皇帝网骗怎么了???\
+### 我是挂圈高层米饭团子,我可以爹妈惨死,爹妈惨死都不能满足我的皇帝梦
+### 在我米饭团子眼里除了我其他人全是底层
+### 进入我的[皇帝墓穴](https://mftz.nac.wtf/)
+### 我的QQ1809097884
+### 我米饭团子可是皇帝网骗怎么了???
 ![1](https://img1.imgtp.com/2023/03/14/vJE583dx.jpg)
 ![2](https://img1.imgtp.com/2023/03/14/zFtOoGDf.jpg)
 ![3](https://img1.imgtp.com/2023/03/14/xtPf2ikZ.png)
